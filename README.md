@@ -14,7 +14,7 @@ OTHER Users after we could ELIMINATE SEVERAL ERRORS to help OFTEN VERY FRUSTRATE
 due to these UNNECESSARY & AVOIDABLE (!) Errors and/or SHORTCOMINGS in the Thunderbird Software design. 
 Now some practical NOTES for your getting more familiar with my background:
 - I live in the State of Washington NEAR SEATTLE/Everett area (in the City of Marysville) therefore I would work with Mozilla ONLINE through Email and 'Chat'
-- I have EXTENSIVE WORKING EXPERIENCE in the Development & Design of new ANALYTICAL (Testing) METHODS in the Phramaceutical Industry (e.g. Johnson & Johnson
+- I have EXTENSIVE WORKING EXPERIENCE in the Development & Design of new ANALYTICAL (Testing) METHODS in the Pharmaceutical Industry (e.g. Johnson & Johnson
 Corporation) as Senior Research Chemist which involved EXTENSIVE Quality Assurance INSPECTIONS (INVESTIGATIONS) to CONFIRM the VALIDITY/REPRODUCIBILITY/
-PRODUCTIVITY/Overall USELFULNESS & IMPROVEMENTS of newly developed METHODS & PROCEDURES. 
+PRODUCTIVITY/Overall USEFULNESS & IMPROVEMENTS of newly developed METHODS & PROCEDURES. 
 
